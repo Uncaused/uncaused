@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 🌱 I’m introvert
+- 🌱 Not active anymore
